@@ -1,12 +1,14 @@
-【保存本页随时获取最新地址】 更新于2025年3月14日
+【保存本页随时获取最新地址】 更新于2025年3月17日
 
-海角社区最新地址(1): [https://05.i91.shop](https://05.i91.shop) （请复制到浏览器打开）
+海角社区最新地址(1): [https://08.hjsck.com](https://08.hjsck.com) （请复制到浏览器打开）
 
-海角社区最新地址(2): [https://08.91fx.shop](https://08.91fx.shop) （请复制到浏览器打开）
+海角社区最新地址(2): [https://hjtfm.cc](https://hjtfm.cc) （请复制到浏览器打开）
 
 海角社区最新地址(3): [https://haijiaohj.net](https://haijiaohj.net) （请复制到浏览器打开）
 
 海角社区最新地址(4): [https://haijiao.cat](https://haijiao.cat) （请复制到浏览器打开）
+
+海角社区官方app下载地址: [https://hq.zmv7u7vg.top](https://hq.zmv7u7vg.top)
 
 永久地址（需VPN、科学上网）[https://hj2025.net](https://hj2025.net) （请复制到浏览器打开）
 

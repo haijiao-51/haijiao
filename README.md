@@ -1,10 +1,10 @@
-【保存本页随时获取最新地址】 更新于2025年3月23日
+【保存本页随时获取最新地址】 更新于2025年3月26日
 
 海角社区官方app下载地址: [https://ts.bz6uyx56.top](https://ts.bz6uyx56.top)
 
-海角社区最新地址(1): [https://01.hjcdd.cc](https://01.hjcdd.cc) （请复制到浏览器打开）
+海角社区最新地址(1): [https://01.c8pbva.cc)](https://01.c8pbva.cc) （请复制到浏览器打开）
 
-海角社区最新地址(2): [https://01.hjfep.vip](https://01.hjfep.vip) （请复制到浏览器打开）
+海角社区最新地址(2): [https://01.r6wp3s.vip](https://01.r6wp3s.vip)) （请复制到浏览器打开）
 
 海角社区最新地址(3): [https://08.hjsck.com](https://08.hjsck.com) （请复制到浏览器打开）
 

@@ -1,10 +1,10 @@
-【保存本页随时获取最新地址】 更新于2025年4月10日
+【保存本页随时获取最新地址】 更新于2025年4月11日
 
-海角社区官方app下载地址一: [https://gege.5pv9stsr.top](https://gege.5pv9stsr.top?channelCode=4VIEW1CZ)
+海角社区官方app下载地址一: [https://hj.5pv9stsr.top](https://hj.5pv9stsr.top?channelCode=4VIEW1CZ)
 
-海角社区官方app下载地址二: [https://tsgt.5pv9stsr.top](https://tsgt.5pv9stsr.top?channelCode=4VIEW1CZ) 
+海角社区官方app下载地址二: [https://th.5pv9stsr.top](https://th.5pv9stsr.top?channelCode=4VIEW1CZ) 
 
-海角社区最新在线地址(1): [https://mo.hjh3m.com](https://mo.hjh3m.com) （请复制到浏览器打开）
+海角社区最新在线地址(1): [https://01.hjyrt.cc](https://01.hjyrt.cc) （请复制到浏览器打开）
 
 海角社区最新在线地址(2): [https://08.akrtqw.top](https://01.akrtqw.top) （请复制到浏览器打开）
 
